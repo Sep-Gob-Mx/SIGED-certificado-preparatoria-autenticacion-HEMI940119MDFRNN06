@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEMI940119MDFRNN06
+HEMI940119MDFRNN06
